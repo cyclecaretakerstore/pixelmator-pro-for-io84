@@ -1,4 +1,4 @@
-
+Get the ultimate Pixelmator Pro for macOS panel with vip Pixelmator Pro for macOS Panel | gradient maps + plugin support. Featuring gradient maps and plugin support, it's the best
 
 
 
